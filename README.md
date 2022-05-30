@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - Yooooooooo! I'm KBB✨
-- 🌱 I’m currently learning Web Programming
+- 🌱 I like sleeping.
