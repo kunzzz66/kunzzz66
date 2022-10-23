@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- Yooooooooo! I'm KBB✨
-- 🌱 I like sleeping.
+- Yooooooooo!
+- I like sleeping✨
